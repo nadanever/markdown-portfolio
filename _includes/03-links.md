@@ -1,1 +1,1 @@
-[Imagens grátis](https://www.lupadigital.info/imagens-gratis/)
+[Imagens grátis](https://www.lupadigital.info)
